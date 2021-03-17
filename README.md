@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @sramalin1
+- 👀 I’m interested in finance
